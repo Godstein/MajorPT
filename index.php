@@ -32,7 +32,7 @@ To those people suffering from depression and anxiety because of this pandemic,
 <br> Im really sorry because you would experience this but always remember that everything will be fine.</left>
 <center><font size="6"><font color="red"><p>"MEMBERS"
 <br>
-<center><p>GODSTEIN PARCON<br>JESSICA MAGBANUA<br>GINSON BOWEN
+<center><p>GODSTEIN PARCON<br>JESSICA MAGBANUA<br>GINSON BOWEN<br>
 </head>
 </html>
 
